@@ -6,4 +6,15 @@ meu nome é emanoelly may  🌕
 - 🪐  estou estudano no Alura 
 - 🦋  estou atualmente me cursando no JavaScript
 
-  ![]()
+
+
+
+
+
+
+
+
+
+
+
+  ![](https://media.tenor.com/U8SbClJgVZwAAAAM/sakura-blossom.gif)
