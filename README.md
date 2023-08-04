@@ -1,4 +1,4 @@
-### Hi there bem vindo(a) ao meu perfil 🫀✨
+### bem vindo(a) ao meu perfil 🫀✨
 
 meu nome é emanoelly may  🌕
 
@@ -7,7 +7,7 @@ meu nome é emanoelly may  🌕
 - 🦋  estou atualmente me cursando no JavaScript
 
 
-l
+
 
 
 
